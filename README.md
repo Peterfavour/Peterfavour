@@ -10,7 +10,7 @@ Okwe Peter Onda @Peterfavour
 - You can reach us on WhatsApp through +234 9072303087 or okwepeteronda@gmail.com or komansihub@gmail.com
 - Working with us saves you the stress of searching for alternative writers or graphics designers. We are two in one.
 - In my team, we enjoy reading, learning and discovering new ideas, relief, meeting new friends and staying with family members and loved ones.
-- 🤣 Non indigenous struggles to pronouns my name right and that makes me to laugh uncontrollably, i enjoy how they make me feel better and maintain good team culture. My teammates calls me peterfavour for simplicity, please, join them if you don't mind, and let's work on your project.
+-  Non indigenous struggles to pronouns my name right and that makes me to laugh uncontrollably, i enjoy how they make me feel better and maintain good team culture. My teammates calls me peterfavour for simplicity, please, join them if you don't mind, and let's work on your project.
 - 
 <! We are the best to consider working with whenever you desire to grow your business and experience great shift and relevance.
   We are specially reserved for you, and your project becomes the best and distinguished from competitors by working with us to staying relevant and prominent.
