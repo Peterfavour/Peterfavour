@@ -1,5 +1,5 @@
 Okwe Peter Onda @Peterfavour
-- I am a graphic designer and writer. A creative director of my team, a group focusing on positive contribution to the society with amazing, compelling, and appealing designing and writing
+- I am a graphic designer and writer. A creative director of my team, a group focusing on positive contribution to the society with compelling, and appealing designing and writing
 -  We are interested in Graphics design and Writing
 - We are good with leadership and always improving on team scaling
 - We are your best plug, and we are committed to assisting in growing your brand.
