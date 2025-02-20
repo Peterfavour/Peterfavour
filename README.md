@@ -9,7 +9,7 @@ Okwe Peter Onda @Peterfavour
 - Writing specialization includes; copy writing, content, ads/captions, quotes, business name and book title drafting, articles and ghost writing, mail writing, editing and proofreading, improving old write ups, and more.
 - I am looking forward to collaborating with Tech founders, and Non Tech Founders in various industries
 - I have a team of graphics designers and writers, that you will surely enjoy collaborating with.
-- You can reach out to us on WhatsApp through +234 9072303087 or okwepeteronda@gmail.com or komansihub@gmail.com
+- You can reach out to us on WhatsApp through +234 9072303087 or okwepeteronda@gmail.com
 - We are a team you'd enjoy working with.
 - Working with us saves you the stress of searching for alternative writers or graphics designers. We are two in one.
 - We keep you informed from initial to final execution part of the job, and always ensuring to deliver the best.
