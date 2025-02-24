@@ -4,7 +4,7 @@ Okwe Peter Onda @Peterfavour
   - Incepting creative ideas for the growth and success of teams, organizations, and businesses.
 - Good on leadership and always improving for team scaling
 - I can be your best plug because I am always committed to assisting in growing brands.
-- I contribute massively to branding and rebranding, interphase design, publication, visual identify design, packaging and product design, infographics, media design, and in areas of designing logo, flyers, stickers, books and magazine covers, business cards, identify cards, letter head, invoice/receipts etc.
+- Contributing massively to branding and rebranding, interphase design, publication, visual identify design, packaging and product design, infographics, media design, and in areas of designing logo, flyers, stickers, books and magazine covers, business cards, identify cards, letter head, invoice/receipts etc.
 - Brightening up ideas and making it visible through writing and designing to mesmerize your audience.
 - Writing specialization includes; copy writing, content, ads/captions, quotes, business name and book title drafting, articles and ghost writing, mail writing, editing and proofreading, improving old write ups, and more.
 - Looking forward to collaborating with Tech founders, and Non Tech Founders in various industries
