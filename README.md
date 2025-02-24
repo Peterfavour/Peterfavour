@@ -7,11 +7,11 @@ Okwe Peter Onda @Peterfavour
 - I contribute massively to branding and rebranding, interphase design, publication, visual identify design, packaging and product design, infographics, media design, and in areas of designing logo, flyers, stickers, books and magazine covers, business cards, identify cards, letter head, invoice/receipts etc.
 - Brightening up ideas and making it visible through writing and designing to mesmerize your audience.
 - Writing specialization includes; copy writing, content, ads/captions, quotes, business name and book title drafting, articles and ghost writing, mail writing, editing and proofreading, improving old write ups, and more.
-- I am looking forward to collaborating with Tech founders, and Non Tech Founders in various industries
-- I have a team of graphics designers and writers, that you will surely enjoy collaborating with.
+- Looking forward to collaborating with Tech founders, and Non Tech Founders in various industries
+- I have a team of graphics designers and writers, you'll enjoy partnering with us because we work collaboratively to deliver to your satisfaction.
 - You can reach out to us on WhatsApp through +234 9072303087 or okwepeteronda@gmail.com
 - We are a team you'd enjoy working with.
-- Working with us saves you the stress of searching for alternative writers or graphics designers. We are two in one.
+- Working with us saves you the stress of searching for alternative writers or graphics designers. We are 2 in 1 (writing and designing.)
 - We keep you informed from initial to final execution part of the job, and always ensuring to deliver the best.
 - In my team, we enjoy reading, learning and discovering new ideas, relief, meeting new friends and staying with family members and loved ones.
 -  Non indigenous struggles to pronouns my name correctly, and that makes me to laugh uncontrollably, i enjoy how they make me feel better and maintain good team culture. My teammates calls me peterfavour for simplicity, please, join them if you don't mind, and let's work on your project.
